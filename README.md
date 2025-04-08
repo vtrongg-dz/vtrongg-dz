@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vtrongg-dz
 - 👀 I’m interested in learning to play games
-- 🌱 I’m currently learning study in grade 9
+- 🌱 I am currently studying at Harvard:)))
 - 💞️ I’m looking to collaborate on with information technology companies
 - 📫 How to reach me FB:https://www.facebook.com/profile.php?id=61568287592546
 - IG:https://www.instagram.com/vantrong_24/
