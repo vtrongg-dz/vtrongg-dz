@@ -8,4 +8,4 @@
 - 😄 Pronouns: sir/văn trọng/trẹng
 - ⚡ Fun fact: đọc truyện tranh,chơi đá bóng ,bi-a
 - and i like you even though i don't know anything about you
-and you know what. i know a lot about you so try to keep this relationship.!---
+- and you know what. i know a lot about you so try to keep this relationship.!---
