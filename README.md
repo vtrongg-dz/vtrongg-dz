@@ -8,7 +8,7 @@
 - 😄 Pronouns: sir/văn trọng/trẹng
 - ⚡ Fun fact: đọc truyện tranh,chơi đá bóng ,bi-a
 - and i like you even though i don't know anything about you
-<!---
+<and you know what. i know a lot about you so try to keep this relationship.!---
 vtrongg-dz/vtrongg-dz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
