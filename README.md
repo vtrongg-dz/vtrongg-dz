@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vtrongg-dz
+- 👋 Hi, I’m vtrongg-dz
 - 👀 I’m interested in learning to play games
 - 🌱 I am currently studying at Harvard , bắc kinh,stanford:)))
 - 💞️ I’m looking to collaborate on with information technology companies and NASA facebook 
